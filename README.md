@@ -21,8 +21,4 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Rajesh-2312&icon=0&color=0)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
 **
